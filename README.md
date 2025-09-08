@@ -2,7 +2,7 @@
 
 <img width="1175" height="180" alt="1000026039" src="https://github.com/user-attachments/assets/f0f75f78-5630-4aa6-a3f0-0b2c66f1016a" />
 
-### <p align="center">✦︵︵.︵︵⊹ ✧ ⊹︵︵.︵︵.︵︵✦ ◜ ♤ ◞ ✦︵︵.︵︵.︵︵⊹ ✧ ⊹︵︵.︵︵✦ 
+### <p align="center">✦︵︵.︵︵⊹ ✧ ⊹.︵︵✦ ◜ ♤ ◞ ✦︵︵⊹ ✧ ⊹︵︵.︵︵✦ 
 
 <p align="center">⊹
 
@@ -41,7 +41,6 @@
 
 <img width="1015" height="125" alt="1000026042" src="https://github.com/user-attachments/assets/31f56c13-483b-449c-a7e5-e28645aa2060" />
 
-
-### <p align="center">✦︵︵.︵︵⊹ ✧ ⊹︵︵.︵︵.︵︵✦ ◜ ♤ ◞ ✦︵︵.︵︵.︵︵⊹ ✧ ⊹︵︵.︵︵✦
+### <p align="center">✦︵︵.︵︵⊹ ✧ ⊹.︵︵✦ ◜ ♤ ◞ ✦︵︵⊹ ✧ ⊹︵︵.︵︵✦ 
 
 <img width="1175" height="180" alt="1000026040" src="https://github.com/user-attachments/assets/25cf4e1a-efbe-4116-8706-3177d90972a9" />
